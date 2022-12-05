@@ -8,4 +8,4 @@ Add the spices, the turmeric, garam masala, cinnamon, black pepper and cook for 
 Add the veg stock, tamari and chopped tomatoes and bring to a boil, add the baby spinach and mix well.
 Sieve in the gram flour and mix through.
 Finely slice the chilli and serve on top.
-Serve with toasted pitta breads or your favourite grain.
+Serve with toasted pitta breads or your favourite grains.
